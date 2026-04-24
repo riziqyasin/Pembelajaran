@@ -11,3 +11,5 @@ https://drive.google.com/drive/folders/1xDOziyEs3mYeNl8vwPxfjEX3dxD1i-dO?usp=sha
 Pembahasan Hari Ini 22 April. Jujur hari ini cukup padat, belum ada to-do list pasti, hari ini mencicil sekaligus riset mendasar terkait penugasan gempa yogyakarta 2006. Pembelajaran Sederhana kemnbali terkait python supaya mempertegas ingatan. Perdalam lagi dasar - dasar. masih banyak yang lupa dan suka berubah - berubah, tapi yang pasti terus melangkah dan mencoba lagi biar jadi orang hebat
 
 Pembahasan hari ini 23 April, jujur hari ini masih mencari titik nyaman. Hari ini sempet ada diskusi terkait das dan sempat diskusi terkait pergantian topik kp. Sama tadi ada belajar kalkulus
+
+Pembahasan hari ini ngereview soal dan tugas. karena sedang sakit
