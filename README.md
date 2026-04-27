@@ -13,3 +13,5 @@ Pembahasan Hari Ini 22 April. Jujur hari ini cukup padat, belum ada to-do list p
 Pembahasan hari ini 23 April, jujur hari ini masih mencari titik nyaman. Hari ini sempet ada diskusi terkait das dan sempat diskusi terkait pergantian topik kp. Sama tadi ada belajar kalkulus
 
 Pembahasan hari ini ngereview soal dan tugas. Sambil nyatat review poster langsung. karena sedang sakit bukan jadi penghalang yang signifikan. Sambil cari tugas carousel 
+
+Pembahasan Hari Ini 27 April, Belajar Integral Kalkulus dan Fisika Optik
