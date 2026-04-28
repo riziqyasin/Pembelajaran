@@ -15,3 +15,5 @@ Pembahasan hari ini 23 April, jujur hari ini masih mencari titik nyaman. Hari in
 Pembahasan hari ini ngereview soal dan tugas. Sambil nyatat review poster langsung. karena sedang sakit bukan jadi penghalang yang signifikan. Sambil cari tugas carousel 
 
 Pembahasan Hari Ini 27 April, Belajar Integral Kalkulus dan Fisika Optik
+
+Pembahasan Hari Ini 28 April, Belajar Mekanika dan Optik
