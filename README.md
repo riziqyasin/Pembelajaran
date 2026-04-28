@@ -16,4 +16,4 @@ Pembahasan hari ini ngereview soal dan tugas. Sambil nyatat review poster langsu
 
 Pembahasan Hari Ini 27 April, Belajar Integral Kalkulus dan Fisika Optik
 
-Pembahasan Hari Ini 28 April, Belajar Mekanika dan Optik
+Pembahasan Hari Ini 28 April, Belajar Mekanika dan Optik & Asistensi
