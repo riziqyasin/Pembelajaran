@@ -19,3 +19,5 @@ Pembahasan Hari Ini 27 April, Belajar Integral Kalkulus dan Fisika Optik
 Pembahasan Hari Ini 28 April, Belajar Mekanika dan Optik & Asistensi
 
 Pembahasann hari ini 29 April 2026, Penugasan
+
+Pembahasann hari ini 3 Mei 2026, Kalkulus pembahasan dan tugas
