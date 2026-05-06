@@ -23,3 +23,7 @@ Pembahasann hari ini 29 April 2026, Penugasan
 Pembahasann hari ini 3 Mei 2026, Kalkulus pembahasan dan tugas
 
 Pembahasan Hari ini 4 Mei 2026, Review kalkulus dan penugasan
+
+Tanggal 5 Mei ultah bagi bagi ke panti 
+
+Tanggal 6 Mei Balik Dari RSA alias sakit lagi
