@@ -31,7 +31,7 @@ Tanggal 6 Mei Balik Dari RSA alias sakit lagi
 Tanggal 7 Mei, Belajar Geokimia dan Coding Sederhana
 
 
-
+Tanggal 11 Mei, Belajar Buat KP, Research & Data Mining
 
 
 
