@@ -33,5 +33,9 @@ Tanggal 7 Mei, Belajar Geokimia dan Coding Sederhana
 
 Tanggal 11 Mei, Belajar Buat KP, Research & Data Mining
 
+Tanggal 12 Mei, Belajar Mengenai VES
+
+Tanggal 13 Mei, KP
+
 
 
